@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @amogus-technologies
-- 👀 I’m interested in computer touching
+- 👀 I’m interested in nothing!
 - 🌱 I’m currently learning 3rd grade math
 - 💞️ I’m looking to collaborate on https://github.com/Useless-Packages-LLC/center-pad/
 - 📫 How to reach me @amogus-technologies on replit
